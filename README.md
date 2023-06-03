@@ -1,7 +1,7 @@
 # 💫 About Me:
 🌙Projects am working on: Acerat & Whizzclient
 🌙Discord name: Goose.#7387
-📝 Age: 17 Coding for nearly 2 years 
+📝 Age: 17
 ✅ KernelDriverDeveloper
 ☢️ Game hacking 
 
